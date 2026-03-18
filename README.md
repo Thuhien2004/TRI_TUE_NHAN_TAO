@@ -1,3 +1,4 @@
 # TRI_TUE_NHAN_TAO
 BÀI TẬP LỚN KỲ II 2025-2026
 ## LINK YOUTOBE TRÌNH BÀY BÀI TẬP LỚN: 
+https://youtu.be/dNCRWUEq0TA?si=PXUgyPTgdg68qn1G
